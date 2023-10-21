@@ -1,0 +1,2 @@
+# MustafaTalab_
+Educational Qualifications
